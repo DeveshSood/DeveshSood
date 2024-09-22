@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @DeveshSood
 - 👀 I’m interested in Programming.
-- 🌱 I’m currently in 11th Grade .. Non Med
+- 🌱 I’m currently in College 1st year .. B.tech
 - 📫 How to reach me - dosood09@gmail.com
